@@ -38,6 +38,7 @@ The Triumph of Social Contro.pdf<br />
 解读希特勒 塞巴斯蒂安·哈夫纳.pdf<br />
 开放社会及其敌人 卡尔·波普尔.pdf<br />
 看电影的艺术 - (北京大学影视艺术译丛) 约瑟夫·M. 博格斯 丹尼斯·W. 皮特里 -北京大学出版社 (2010).pdf<br />
+狂热分子：码头工人哲学家的沉思录 - (社会学经典著作) 〔美〕埃里克·霍弗著；梁永安译 - 广西师范大学出版社 (2008).pdf<br />
 离线 李婷.pdf<br />
 逻辑十九讲 威廉姆·沃克·阿特金森.pdf<br />
 盲视（理想国出品）nodrm.pdf<br />
@@ -80,6 +81,7 @@ The Triumph of Social Contro.pdf<br />
 银座妈妈桑说话术.pdf<br />
 娱乐至死.pdf<br />
 圆圈正义.pdf<br />
+月亮与六便士.pdf<br />
 云雀叫了一整天.pdf<br />
 赞美他人大全.pdf<br />
 战争与和平 托尔斯泰.pdf<br />
